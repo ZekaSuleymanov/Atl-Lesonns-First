@@ -8,3 +8,6 @@
 
 
 ![Mesele_5](https://github.com/ZekaSuleymanov/Test/assets/135030321/6d2e173f-4347-431b-8016-5931c43923f7)
+
+
+![Mesele_6](https://github.com/ZekaSuleymanov/Test/assets/135030321/6d46f9ed-b725-4f15-b5b3-5fef2de6faae)
