@@ -17,3 +17,5 @@
 ![Mesele_9](https://github.com/ZekaSuleymanov/Test/assets/135030321/b0770c1c-6a5b-4149-bf92-75ecb96141a0)
 
 ![Mesele_10](https://github.com/ZekaSuleymanov/Test/assets/135030321/83b35808-5041-4d21-9971-48e85805a193)
+
+![Mesele_11](https://github.com/ZekaSuleymanov/Test/assets/135030321/4bdb2aa9-1f9d-455b-bfb6-dfe3f4b5948f)
